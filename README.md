@@ -1,0 +1,2 @@
+# PaleMoonAppImage
+PaleMoonAppImage
