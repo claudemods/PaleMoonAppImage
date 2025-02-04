@@ -9,6 +9,8 @@ Buy me a 🍕🥧 https://www.paypal.com/paypalme/claudemods?country.x=GB&locale
 download
 https://www.pling.com/p/2257500/
 
-![2025-02-03-233622_hyprshot](https://github.com/user-attachments/assets/e97f9e64-ebd2-4240-9ed6-eebf2c150e22)
-![2025-02-03-233545_hyprshot](https://github.com/user-attachments/assets/9b066cee-cd31-4412-9673-0fd5284b4f9e)
+![2025-02-03-221336_hyprshot](https://github.com/user-attachments/assets/67c61aec-e035-4024-a015-8aeeba1d3cd0)
+![2025-02-03-221039_hyprshot](https://github.com/user-attachments/assets/b8300acb-188a-4c10-a204-3f57754c74c7)
+
+
 
